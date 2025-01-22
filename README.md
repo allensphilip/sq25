@@ -3,3 +3,4 @@
 4A2000 - 4E2049 :  [https://extendedforms.io/form/9dff18dd-dd18-46d7-9912-7faec2e18b36/login](https://docs.google.com/forms/d/e/1FAIpQLSexODkH9Qw4a6GEyUZVAXSRyFUl24KR5NnJMqAVd5CXPYFedQ/viewform?usp=sharing)<br>
 CLASS - V : https://forms.gle/2wZtdxVk6nF3MTNY7<br>
 CLASS VI : https://forms.gle/ws8NKKVbsDisBYLE7
+CLASS VII: https://forms.gle/FvvtNLLLDMBV9fK7A
